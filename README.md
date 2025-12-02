@@ -1,16 +1,16 @@
-## Hi there 👋
+_Bem-vindo(a) ao meu perfil!_ 🫶💗
 
-<!--
-**MariaDalposso98/MariaDalposso98** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Meu nome é Maria Clara Dalposso** 
+- Estudente do Alura🥇
+- Karate-do tradicional👊
+- Católica⛪
+- Pinturas🎨
+- Amo Musica🎵
+- Gosto de Cozinhar nos tempos livres🥘
+- Amo Gatos🐱
 
-Here are some ideas to get you started:
+_Instagram_ 
+@_ dal.pozzo _
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media.tenor.com/XXmdU1_Af-oAAAAi/cat-waving-hand.gif)
+![](https://media.tenor.com/gUf7q7Z5oiQAAAAj/pompompurin-peek.gif)
